@@ -1,1 +1,1 @@
-# Gudlavalleru_College_website
+# Pushpa_Gudlavalleru_College_website
